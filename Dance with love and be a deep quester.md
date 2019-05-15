@@ -129,6 +129,63 @@ house届的太阳女神的座右铭"Live true and dance for you."
 
 2.[DJ Grandmaster Flash](https://en.wikipedia.org/wiki/Grandmaster_Flash)是DJ文化的转折点
 
+### Locking知识相关
+#### 感谢陈景玥、蔡谷涛、阿淼的文字整理
+【最重要律动*3】来源于Rufus Thomas的三首歌
+Funky Chicken ——Do The Funky Chicken
+Funky Penguin ——Do The Funky Penguin
+Breakdown ——The Breakdown
+ 
+【上身基本元素*5】（发明人）
+Don Campbell Lock ——最先诞生
+Wrist Roll（wrist wirl) ——
+Uncle Sam Point ——由来:以前有个老年舞者叫sam 当他体力不支要跳不动时候，就会指着其他人让他们跳舞
+Punch（Pacing）——有step时候叫做pacing或者drum
+Give Me Five(Clap) ——类似还有hambone，stomp的前身，想象用羊腿大骨头敲击身体的感觉
+ 
+【下身基本元素*5】（依照时间顺序记忆）
+Don Campbell Walk ——最先诞生
+Scoobie Doo ——scoo b doo在跳舞玩耍看到后面有阶梯跳了一下创造了这个move
+Kick Walk ——
+Skeeter Rabbit ——
+Stop And Go ——scoo b doo在做breakdown时候创造了这个move
+ 
+【其他基本元素*4】
+两头（上身头部move，眼神的重要性）：
+Look ——
+Seek ——
+两脚（较为重要的元素）：
+Scoobot (Scuba) ——scoo b doo发明，Tony gogo在跳错的情况下发明了scoobot-hop
+Locker’s Time Step (6 Step)——
+
+以上共17个元素，是locking最最基本和最最重要的元素
+
+【其他重要元素】
+Which A Way ——
+Leo Walk ——
+Get Fancy ——
+Funky Guitar ——
+Scoobot Hop
+Rock Steady 
+Shuffle 
+Strong Man 
+Knife
+Double Lock 
+James Brown 
+Ham Bone
+四大招：
+Split 
+Knee Drop 
+Alpha Kick 
+Russian Kick 
+
+基本史识：
+产生时间60年代末70年代初
+locking界的三个超级大神（三巨头，对lc影响最为深远）：
+Scoo B Doo
+Don Campbelllock
+Damita JoFreeman（don的第一个舞伴，james brown在soul train首选单人女舞伴，发明了funky guitar）
+
 ### 相关阅读：
 [Hip-hop dance](https://en.wikipedia.org/wiki/Hip-hop_dance)
 
